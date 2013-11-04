@@ -1,1 +1,1 @@
-Je sais pas me servir de git sponso par Rols.com
+Je sais pas me servir de git sponso par Kruck.com
